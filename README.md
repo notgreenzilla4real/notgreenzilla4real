@@ -2,8 +2,6 @@
 
 <p align="center">
   hi im fillian
-  
-  i like. alan becker
-  
-  im exhausted very easily so like a good majority of the time i'll get tired mid conversation im sorry (╥﹏╥)
+  i like. alan becker<br>
+  im exhausted very easily so like a good majority of the time i'll get tired mid conversation im sorry (╥﹏╥)<br>
 </p>

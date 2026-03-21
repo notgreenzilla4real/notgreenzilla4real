@@ -5,5 +5,6 @@
   hi i am fillian or purple or victim or chosen<br>
   <a href="https://sticksfight.atabook.org/">sign my atabook</a> <br>
   <img src=https://files.catbox.moe/55bps7.png width="300" height="500"> <br>
-  fatigued a lot of the time b patient with me pls
+  fatigued a lot of the time b patient with me pls<br>
+  roleplay kindly pls dni! ^_^
 </div>

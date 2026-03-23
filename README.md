@@ -6,8 +6,5 @@
   <a href="https://sticksfight.atabook.org/">atabook </a> 🪻 <a href="https://purplytra.straw.page/">strawpage </a> <br>
   <img src=https://files.catbox.moe/55bps7.png width="300" height="500"> <br>
   fatigued a lot of the time b patient with me pls<br>
-  roleplay kindly pls dni! ^_^
-  <br>
-  <br>
-  <img src=https://i.pinimg.com/736x/a4/6d/59/a46d5946bdfbdca1ff6f8d224a3cb44e.jpg width="100" height="150"> <br>
+  roleplay kindly pls dni
 </div>

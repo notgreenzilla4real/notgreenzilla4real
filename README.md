@@ -2,9 +2,9 @@
   <img src="https://komarev.com/ghpvc/?username=notgreenzilla4real&label=sticksfight.com&color=blueviolet" alt="Profile Views">
   <br>
   <br>
-  hi i am fillian or purple or victim or chosen<br>
+  hi i am fillian or purple or victim<br>
   <a href="https://sticksfight.atabook.org/">atabook </a> 🪻 <a href="https://purplytra.straw.page/">strawpage </a> <br>
   <img src=https://files.catbox.moe/55bps7.png width="300" height="500"> <br>
   fatigued a lot of the time b patient with me pls<br>
-  roleplay kindly pls dni
+  most of our ponies are kins or alters **it is not roleplaying!!**
 </div>

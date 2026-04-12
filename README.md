@@ -5,5 +5,5 @@
   <br>
   this is work in progress apologies for the lack of decoration....
   <br>
-  <img src="https://media1.tenor.com/m/zyphbMYmmOoAAAAC/animation-vs-minecraft-alan-becker.gif" width=600>
+  <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=600>
 </p>

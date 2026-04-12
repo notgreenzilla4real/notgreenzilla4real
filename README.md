@@ -7,6 +7,7 @@
   <br>
   <br>
   <br>
+  <img src=https://64.media.tumblr.com/5bdfa850b91d4f9924a67b08de60a4c6/b15d23a765658ea4-ca/s1280x1920/e10bc7bed2451abb29eb678dc73b57b6a366dee5.pnj>
   <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300>
   <br>
   <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=400> <br>

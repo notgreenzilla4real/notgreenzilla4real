@@ -8,6 +8,6 @@
   <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300>
   <br>
   <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=600> <br>
-  ➤ hi hellloooo!! i'm purple or fillian or anything u know me by i dont rlly carreeee ^_^
-  ➤ i love <b> alan becker, the walten files, regretevator, </b> five nights at freddy's, dandy's world, 
+  ➤ hi hellloooo!! i'm <i> purple </i> or fillian or anything u know me by i dont rlly carreeee ^_^ <br>
+  ➤ i love <b> alan becker, the walten files, regretevator, </b> five nights at freddy's, dandy's world, alex g, searching for a world that doesn't exist, minecraft (im getting into smps...ok...), object shows, bfdi, saiki k, mha, birds n dogs (specifically scarlet macaws and border collies), sea lions, and a whole buncha other stuff
 </p>

@@ -21,5 +21,5 @@
   <br>
   <br>
 <sub> this is me and my gf btw </sub> <br>
-<img src=https://i.postimg.cc/J7ct01PL/Screenshot-2026-04-12-4-56-33-AM-removebg-preview.png width=300> <br>
+<a href='https://postimg.cc/rzsqY2Bn' target='_blank'><img src='https://i.postimg.cc/rzsqY2Bn/Screenshot-2026-04-12-4-56-33-AM-removebg-preview.png' border='0' alt='Screenshot-2026-04-12-4-56-33-AM-removebg-preview' width=300></a> <br>
 </p>

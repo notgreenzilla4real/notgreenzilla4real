@@ -23,6 +23,5 @@
   <br>
   <img align="right" src=https://media1.tenor.com/m/t69i9geO8coAAAAd/purple-avm.gif width=300> <br>
   <br>
-  ➤ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+  ➤ i adore making friends!! plsplspls interact with me i'd love to make more friends! anyone is welcome to sit with me unless my name says otherwise or you're on my dni list
 </p>

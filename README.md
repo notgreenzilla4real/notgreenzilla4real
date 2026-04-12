@@ -20,6 +20,4 @@
   <img src=https://64.media.tumblr.com/a72f0e31e40dbe5add31db847a1dfe26/a4c71817eda70ea5-7d/s640x960/e17869a47f04e9da8bc6cc4c9bf024ff748d7820.gifv width=500>
   <br>
   <br>
-<sub> this is me and my gf btw </sub> <br>
-<a href='https://postimg.cc/rzsqY2Bn' target='_blank'><img src='https://i.postimg.cc/rzsqY2Bn/Screenshot-2026-04-12-4-56-33-AM-removebg-preview.png' border='0' alt='Screenshot-2026-04-12-4-56-33-AM-removebg-preview' width=300></a> <br>
 </p>

@@ -22,3 +22,4 @@
 <sub> this is me and my gf btw </sub> <br>
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/J7ct01PL/Screenshot-2026-04-12-4-56-33-AM-removebg-preview.png' border='0' alt='Screenshot-2026-04-12-4-56-33-AM-removebg-preview' width=350></a> <br>
 </p>
+➤ we have a HORRIBLE memory so if you're one of my friends (who isn't close) and we don't remember you please don't get upset

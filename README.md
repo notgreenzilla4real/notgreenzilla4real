@@ -8,5 +8,6 @@
   <img align="left" src="https://media1.tenor.com/m/rAnVK3wL8ScAAAAd/purple-avm.gif" width=300>
   <br>
   <img src="http://www.gigaglitters.com/created/pRkwVoAyaL.gif" width=600> <br>
-  - hi hellloooo!! i'm purple or fillian or anything u know me by i dont rlly carreeee ^_^
+  ➤ hi hellloooo!! i'm purple or fillian or anything u know me by i dont rlly carreeee ^_^
+  ➤ i love <b> alan becker, the walten files, regretevator, </b> five nights at freddy's, dandy's world, 
 </p>

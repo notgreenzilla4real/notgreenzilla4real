@@ -29,4 +29,9 @@
   ➤ i'm very easily exhausted, and a majority of the time im really tired 😓 so i'd appreciate if you interacted with caution unless close! <br>
   <br>
   ➤ i am a system, don't try to fakeclaim me you're no medical professional and you'll be hidden if you do so! i'm not looking for any sorts of syscourse
+  <br>
+  <br>
+<a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31uo43a3izswaokbq7xomaf3ziay&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=a800a3&bar_color_cover=false">
+</a>
 </p>

@@ -27,4 +27,6 @@
   ➤ i adore making friends!! plsplspls interact with me i'd love to make more friends! anyone is welcome to sit with me unless my name says otherwise or you're on my dni list <br>
   <br>
   ➤ i'm very easily exhausted, and a majority of the time im really tired 😓 so i'd appreciate if you interacted with caution unless close! <br>
+  <br>
+  ➤ i am a system, don't try to fakeclaim me you're no medical professional and i'm not looking for any sorts of syscourse!
 </p>

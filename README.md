@@ -31,6 +31,8 @@
   ➤ i adore making friends!! plsplspls interact with me i'd love to make more friends! anyone is welcome to sit with me unless my name says otherwise or you're on my dni list <br>
   <br>
   ➤ i am a system, don't try to fakeclaim me you're no medical professional and you'll be hidden if you do so! i'm not looking for any sorts of syscourse
-<img src="https://media.tenor.com/S5yH0vkR214AAAAi/minecraft-apple.gif" width=100/>
+<br>
+  <br>
+  <img src="https://media.tenor.com/S5yH0vkR214AAAAi/minecraft-apple.gif" width=50/>
 </a>
 </p>

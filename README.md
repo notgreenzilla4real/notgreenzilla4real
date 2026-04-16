@@ -1,11 +1,4 @@
-<p align="center">
-  ohhymgdoodd i just realised i removed my atabook from my links here and i have SIGN ATA IN MY NAME GOSH GOLLY GOSH OK guys here it is...sorry gamers.. -best and coolest purple ever
-  <br>
-  
-  <br>
-  this is work in progress apologies for the lack of decoration....
-  <br>
-  <br>
+<p align="center">.
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31uo43a3izswaokbq7xomaf3ziay&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=a800a3&bar_color_cover=false">
   </a>
